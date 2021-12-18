@@ -4,6 +4,8 @@
 
 ### Discord
 
+[Discord Support Channel](https://openmev.page.link/support-chat)
+
 ### Contact 
 
 Point of Contact <sam@manifoldfinance.com>
