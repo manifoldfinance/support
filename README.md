@@ -1,4 +1,8 @@
-## `manifold finance support`
+# Manifold Finance Community Support
+
+## NEVER SEND MONEY TO ANYONE FROM MANIFOLD FINANCE
+
+## NEVER SHARE YOUR PRIVATE KEYS OR YOUR COMPUTER SCREEN
 
 ## Helpdesk
 
